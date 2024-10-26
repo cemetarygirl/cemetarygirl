@@ -1,6 +1,6 @@
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1022244196305870858/1288072287198777374/makesweet-o7r8j6.gif?ex=66fc6c0c&is=66fb1a8c&hm=0a683e1c2351f733cf0507ab267721415f79645e9105d64c8a877d1586341d41&" height="300" border="10"/>
 </p>
-<p align="center"> <img src="https://64.media.tumblr.com/8ba0109ce14608a774449af53d5aa96f/8a2128390b98f5c4-9e/s75x75_c1/368eaa93079f9b8d70a6c90cafefb8a65a741d2c.gifv"> <strong>aba/trindle</strong> <img src="https://64.media.tumblr.com/5b589ad901b87df6d1639355a95dfee8/b2e2d62887240a43-d1/s75x75_c1/8a98b22d696c076767d561dd5f9692028cf2cf1a.webp"><br>
+<p align="center"> <img src="https://64.media.tumblr.com/8ba0109ce14608a774449af53d5aa96f/8a2128390b98f5c4-9e/s75x75_c1/368eaa93079f9b8d70a6c90cafefb8a65a741d2c.gifv"> <strong>toki/trindle</strong> <img src="https://64.media.tumblr.com/5b589ad901b87df6d1639355a95dfee8/b2e2d62887240a43-d1/s75x75_c1/8a98b22d696c076767d561dd5f9692028cf2cf1a.webp"><br>
 <img src="https://64.media.tumblr.com/d2ff194d8a592e64df6a3d4d71f21066/55e2e7370bde2496-9d/s75x75_c1/e9732fc1a71698f722956cd01a403720a3b18a6f.webp"><u>sie/hir intrsex 
 <img src="https://64.media.tumblr.com/c3c3e1b47cb0b0a085cf1937a9bd1053/b2e2d62887240a43-cd/s75x75_c1/3cb95e864eb94072ff7c460cde0ef3c94c03cb4c.webp">butch lesbian</u>
 <img src="https://64.media.tumblr.com/fcf6db2d788e4fbc40db7d2a3c4530b2/55e2e7370bde2496-af/s75x75_c1/ecbb15195e2a17fa2f12035c1dc232b283fda5af.webp">
